@@ -1,4 +1,3 @@
-/WAH-zoh/manifesto. Physonyl everywhere else.
-You can call me Alex, and any pronouns will do.
+plight, ois, physonyl, letharger, however you met me, I'm alex.
 
-My stuff in in my oiseaumanifesto/oiseaumanifesto repository.
+she/he/they/whatever. 18+
