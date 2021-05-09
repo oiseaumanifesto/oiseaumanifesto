@@ -1,4 +1,3 @@
-plight, ois, physonyl, letharger...
-however you met me, i'm alex. i do the silly things i want to do.
+im alex. i do the bare minimum of coding! im more of an artist, really.
 
 she/he/they/whatever. 18+
